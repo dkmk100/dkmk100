@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dkmk100
+- 👀 I’m interested in minecraft modding and game development
+- 🌱 I’m currently learning computer science at University
+- 💞️ I’m currently not looking to colaborate, but probably later
+- 📫 I'll post a contact method soon.
